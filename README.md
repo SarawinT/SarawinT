@@ -5,5 +5,3 @@
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![alt text](https://cdn.betterttv.net/emote/626c5ecc3c6f14b68846976b/3x)![alt text](https://cdn.betterttv.net/emote/626c5ecc3c6f14b68846976b/3x)![alt text](https://cdn.betterttv.net/emote/626c5ecc3c6f14b68846976b/3x)
-
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![Profile views](https://gpvc.arturio.dev/SarawinT)
